@@ -6,3 +6,4 @@ My bf calls me italian when im actually hungarian... fucking racist
 
 
 ![](https://komarev.com/ghpvc/?wtfRexx&style=flat-square)
+![](https://hit.yhype.me/github/profile?user_id=44014925)
